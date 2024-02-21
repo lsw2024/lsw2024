@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 1 page comic
 - 💞️ I’m looking to collaborate on card game project.
 - 📫 How to reach me lsw12012021@gmail.com
-- 😄 porfolio- https://www.artstation.com/lokshangwen
+- 😄 portfolio- https://www.artstation.com/lokshangwen
              - https://www.behance.net/lokshangwen 
 - ⚡ Fun fact: iam a newbie on coding.
 

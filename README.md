@@ -5,7 +5,7 @@
 - 📫 How to reach me lsw12012021@gmail.com
 - 😄 portfolio- https://www.artstation.com/lokshangwen
              - https://www.behance.net/lokshangwen 
-- ⚡ Fun fact: iam a newbie on coding.
+  
 
 <!---
 lsw2024/lsw2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lsw2024
 - 👀 I’m interested in drawing
-- 🌱 I’m currently learning 1 page comic
+- 🌱 I’m currently learning how to create 1 page comic daily
 - 💞️ I’m looking to collaborate on card game project.
 - 📫 How to reach me lsw12012021@gmail.com
 - 😄 portfolio- https://www.artstation.com/lokshangwen
